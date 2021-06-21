@@ -6,7 +6,7 @@ This read me is for the purposes of displaying how many completed quests I have 
 Albedo Address - GBZ65LINOSVIECCKHSYHA322L3GYZL3ML3XXMHPI2HENCKFWSBAJZAES
 
 
-Video - 
+Video - https://youtu.be/L5Q0BHYmAUs
 
 Series 1 
 
